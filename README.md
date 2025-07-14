@@ -187,3 +187,5 @@ This project is licensed under the **MIT License** — see the [LICENSE](./LICEN
 ## 📧 Contact
 
 Created by **[AliYahyavy]** — feel free to reach out!
+Email : **[aliyahyavi77@yahoo.com]**
+Telegram ID : **[@ali_yahyavii]**
